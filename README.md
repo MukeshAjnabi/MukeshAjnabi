@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @MukeshAjnabi
-- 👀 I’m interested in Forex Trading
+- 👀 I’m indpendet forex trader, i have more than 4 years experience, you can watch my results at twitter @strangefxtrader an i'm interested in Forex Trading
 - 🌱 I’m an expert of Data entry, microsofit office specially excel
 - 💞️ I’m working both above mentioned and also i'm a graphic and photoadobe shop, photo designer. background remove retouching etc
 - 📫 How to reach me ...you can contact me at upwork profile 
